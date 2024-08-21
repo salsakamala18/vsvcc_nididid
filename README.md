@@ -13,3 +13,6 @@
 
 > 2023-05-01 [YouTube](https://youtu.be/RhBidWXC22M) MIXUE ES KRIM VIRAL TERNYATA INI RESEPNYA [agus cuguy](https://m.youtube.com/@aguscuguy01)
 <br>
+
+> 2021-10-15 [YouTube](https://youtu.be/q0Jw6_Dfabg) JUALAN DIRUMAH SEPI? COBA BIKIN PAKAI RESEP INI! | Cara Buat Es Krim Pop Ice Rumahan Enak Lembut [Ike Puspita](https://m.youtube.com/@IkePuspita)
+<br>
