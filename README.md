@@ -10,3 +10,6 @@
 
 > 2022-09-30 [YouTube](https://youtu.be/lCeL2v__tM8) BISA JADI BOS SEJAK JUALAN INI REZEKI TAK PERNAH PUTUS PUTUS!! [Vivi veronica](https://m.youtube.com/@viviveronica2029)
 <br>
+
+> 2023-05-01 [YouTube](https://youtu.be/RhBidWXC22M) MIXUE ES KRIM VIRAL TERNYATA INI RESEPNYA [agus cuguy](https://m.youtube.com/@aguscuguy01)
+<br>
