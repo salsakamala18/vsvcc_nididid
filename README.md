@@ -8,3 +8,5 @@
 > 2023-05-24 [YouTube](https://youtu.be/4ZERkfaAfvE) MODAL SEUPRIT..!! OMSET 7 JUTA GAK PELIT ILMU BONGKAR RESEP ASLI MASTER CHEF YG MENYAMAR | IDE USAHA [JAJAN RANGER](https://m.youtube.com/@JAJANRANGER)
 <br>
 
+> 2022-09-30 [YouTube](https://youtu.be/lCeL2v__tM8) BISA JADI BOS SEJAK JUALAN INI REZEKI TAK PERNAH PUTUS PUTUS!! [Vivi veronica](https://m.youtube.com/@viviveronica2029)
+<br>
