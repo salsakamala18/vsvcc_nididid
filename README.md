@@ -5,3 +5,6 @@
 > 2024-06-30 [YouTube](https://youtu.be/Cr5nPObTBJ0) manusia serba bisa membuat ide usaha!!! dengan modal bahan seadanya bisa untung jutaan [Bang Food](https://m.youtube.com/@bangfood)
 <br>
 
+> 2023-05-24 [YouTube](https://youtu.be/4ZERkfaAfvE) MODAL SEUPRIT..!! OMSET 7 JUTA GAK PELIT ILMU BONGKAR RESEP ASLI MASTER CHEF YG MENYAMAR | IDE USAHA [JAJAN RANGER](https://m.youtube.com/@JAJANRANGER)
+<br>
+
